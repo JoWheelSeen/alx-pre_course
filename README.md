@@ -1,2 +1,1 @@
-Blessings Rain on Me again and again
-Brighter days 
+Blessings Rain on Me forever
